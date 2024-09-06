@@ -7,3 +7,6 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 ### Você pode entrar em contato comigo 📫
 00001125723208sp@al.educacao.sp.gov.br
+
+
+![](https://media.tenor.com/rERIfw92tLUAAAAj/skeleton-dance.gif)
